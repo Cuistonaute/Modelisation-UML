@@ -16,7 +16,6 @@
 
 👤 [**Poizot Danny**](https://github.com/DannyPoizot)
 
-👤 [**Hecquet Romuald**](https://github.com/aerobi93)
 
 ## Show your support
 
